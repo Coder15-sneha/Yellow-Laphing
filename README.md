@@ -1,0 +1,2 @@
+# Yellow_Laphing.
+Yellow Laphing is a spicy cold mung bean noodle dish in Tibetan cuisine. It is a street food and is also popular in some parts of Nepal, Sikkim, Kalimpong and Darjelling.It can be eaten with red pepper chili, coriander and green onion sauce. The yellow noodles have a slippery texture and are served with a soy sauce gravy. It is traditionally a summer food. A tool is used to shape it. The laping derives from the Sichuan-style liangfen.
